@@ -1,4 +1,4 @@
-# Navigating novel habitats: assessing the impacts of artificial complexity on space-use by a key intertidal grazer
+# Effects of Topographic Complexity on Space-Use by a Key Intertidal Grazer in Artificial Environments
 
 #### Charlotte H. Clubley, Louise B. Firth, Antony M. Knights
 
